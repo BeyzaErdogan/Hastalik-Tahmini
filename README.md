@@ -1,1 +1,1 @@
-# Hastal-k-Tahmini
+# Hastalik-Tahmini
